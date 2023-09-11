@@ -8,5 +8,6 @@ Für die Einhaltung ist der Verein / Betreiber selbst verantwortlich !
 Ebenso für die Datensicherheit und die Datensicherung.
 
 Allgemeine Informationen zum Thema DSGVO unter https://vereinshandbuch.com
+
 Rückfragen gerne unter: office@modellflugsport.at
 
